@@ -1,2 +1,2 @@
 # Domenik
-NICE 
+Water as wisdom does not worry
